@@ -1,11 +1,11 @@
-**sobre mim**
+⭐️**sobre mim**⭐️
 
--Meu nome é Helen tenho 14 anos.
+-Meu nome é Helen tenho 14 anos.🪷
 
--Meu esporte favorito é volei. 
+-Meu esporte favorito é volei.🏐
 
--Sou Leitora de suspense e misterio.
+-Sou Leitora de suspense e misterio.📚
 
--Minha personalidade é INFP.
+-Minha personalidade é INFP.🌱
 
--Gosto de desenhar e assistir animes.
+-Gosto de desenhar e assistir animes.💜
