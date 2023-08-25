@@ -1,11 +1,14 @@
-⭐️**sobre mim**⭐️
+⭐️ **Sobre Mim** ⭐️
+🪐 Meu nome é Helen, tenho 14 anos.
 
--Meu nome é Helen tenho 14 anos.🪷
+🔭 Atualmente estou estudando no 1° do ensino médio.
 
--Meu esporte favorito é volei.🏐
+👯 Estou aprendendo uma nova língua, o 
+japonês.
 
--Sou Leitora de suspense e misterio.📚
+🌱 Minha personalidade é INFP.
 
--Minha personalidade é INFP.🌱
+💬 Gosto muito de ler, desenhar,assistir Animes e Jogar vôlei 🏐.
 
--Gosto de desenhar e assistir animes.💜
+"Não é a linguagem de programação que define o programador, mas sim sua lógica."
+-David Ribeiro Guilherme
