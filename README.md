@@ -2,7 +2,9 @@
 
 🪐 Meu nome é Helen, tenho 14 anos.
 
-🔭 Atualmente estou estudando no 1° do ensino médio.
+![](https://media.tenor.com/aF0ipAtOk9cAAAAC/spy-x-family-anya.gif)
+
+🔭 Atualmente estou estudando no 1° do ensino médio, estou melhorando minhas habilidades no alura e no scratch.
 
 👯 Estou aprendendo uma nova língua, o 
 japonês.
