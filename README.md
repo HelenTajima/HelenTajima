@@ -11,5 +11,7 @@ japonês.
 
 💬 Gosto muito de ler, desenhar,assistir Animes e Jogar vôlei 🏐.
 
+![](https://media.tenor.com/y0NFqdYzlLIAAAAC/beauty-and-the-beast-library.gif)
+
 "Não é a linguagem de programação que define o programador, mas sim sua lógica."
 -David Ribeiro Guilherme
